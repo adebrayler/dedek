@@ -1,0 +1,2 @@
+# dedek
+PROMO AKHIR TAHUN GRATIS ONGKIR KESELURUH INDONESIA✔ BORONGAN HARGA SPECIAL🔥 Jadi buat yg mau pesan tapi takut berat di ongkir bisa pesan dari sekarang kuy✔ Menyediakan berbagai variasi motor mulai dari Velg🔥 Shock🔥 Knalpot🔥 Body🔥 Menerima jasa airbrush body motor motif bisa request Minat hub whatsapp kita di 083190211641 Fast respown Proses Kilat✔ Siap kirim ke seluruh indonesia JNE, J&amp;T &amp; NINJAEXPRESS🚚🚛
